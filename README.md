@@ -1,4 +1,4 @@
-# infinite blog :link: https://melodysky9527.github.io/infiniteblog.github.io 
+# infinite blog :link: https://melodysky9527.github.io
 ### :page_facing_up: [1](https://melodysky9527.github.io/infiniteblog.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 7 
