@@ -1,10 +1,12 @@
 https://register.us.kg/
 
-<img src="C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20240528165616729.png" alt="image-20240528165616729" style="zoom:100%;" />
+![image](https://github.com/user-attachments/assets/a1bf0630-e6e5-4636-b4af-8759021052be)
+
 
 One@seven6
 
-![image-20240528174428336](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20240528174428336.png)
+![image](https://github.com/user-attachments/assets/7a4a7c8a-31b7-4d71-8bc7-f2f4d696c532)
+
 
 LuoLuo One@seven6
 
